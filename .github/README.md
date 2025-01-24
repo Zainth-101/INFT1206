@@ -1,2 +1,2 @@
-# INFT1206
+# Zainth-101.github.io
  
